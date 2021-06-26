@@ -1,0 +1,1 @@
+	Eu estou gostando muito das aulas do Gama Academy. Super bem explicadas e com o passo a passo bem detalhado.
